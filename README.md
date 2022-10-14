@@ -1,5 +1,5 @@
 - @softbby666✨
-- I’m interested in cats 
+- I like cats 
 - I’m currently learning web development 🍭
 - All this is so new to me🙈
 
